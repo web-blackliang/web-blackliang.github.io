@@ -29,4 +29,4 @@
 ### blackliang个人站：[http://www.blackliang.com/](http://www.blackliang.com "blackliang | 老亮的青青草原")
 
 ### 微信:
-### ![](https://www.blackliang.com/web-blackliang.github.io/image/2aa146e5c532279faa8c0ea9176e60d0_300_300.jpg)
+### ![](https://www.blackliang.com/blackliang/q/img/2aa146e5c532279faa8c0ea9176e60d0_300_300.png)
